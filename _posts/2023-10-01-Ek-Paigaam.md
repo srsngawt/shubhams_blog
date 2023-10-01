@@ -21,7 +21,7 @@ Intzaar hi likha ho, Yahi niyati(destiny) ho humari.
 
 Kuch bola nhi tumne, Kuch mai sun nhi paya, 
 
-Milna to chahta tha hr taarik pe tumse, 
+Milna to chahta tha, hr taarik pe tumse, 
 
 Vo baat kuch or hai ki tumse kbhi mil nhi paya. 
 
